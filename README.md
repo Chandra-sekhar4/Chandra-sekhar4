@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/chandra25974452" target="blank"><img src="https://img.shields.io/twitter/follow/chandra25974452?logo=twitter&style=for-the-badge" alt="chandra25974452" /></a> </p>
 
-- 📫 How to reach me **chandrashekharpradhan143@gmail.com**
+- 📫 How to reach me **chandrashekhar1548@gmail.com**
 
 - ⚡ Fun fact **I think I am funny**
 
